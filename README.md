@@ -13,3 +13,7 @@ Hallo, ich bin Axel
 Wenn man mit Kai zusammen arbeitet wird es eundeutig nie langweilig
 Selbst wenn er sagt das er heute überfordert ist
 Mir persönlich geht es gut ich hab nur hunger und will das geile Wetter heute genießen
+
+## kai
+
+ ..statt mein Gesülze zu hören, faschteeh ick. Sagen alle, inklusive Mutti, Antje und Pfleger.
