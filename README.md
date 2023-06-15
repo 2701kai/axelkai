@@ -17,3 +17,7 @@ Mir persönlich geht es gut ich hab nur hunger und will das geile Wetter heute g
 ## kai
 
  ..statt mein Gesülze zu hören, faschteeh ick. Sagen alle, inklusive Mutti, Antje und Pfleger.
+
+ ## axel
+
+ ich bin Axel 26 Jahre und hab kein wirkliches Lieblingsessen ich esse eigentlich fast alles gerne
